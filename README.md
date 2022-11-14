@@ -5,4 +5,10 @@
 I'm currently based in _Dresden_ and work at a recruiting agency as an Integration Manager.
 I really do love my job but because I'm always craving new challenges I ended up at neue Fische. 
 
+**My hobbies are:**
+- reading fantasy books
+- drawing
+- watching anime
+- traveling
+
 ![gif2](https://media.giphy.com/media/3o7qE8TcxvLxDGPBmM/giphy.gif)
