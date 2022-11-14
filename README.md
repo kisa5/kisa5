@@ -1,4 +1,4 @@
-# Hi, I'm _Anna_ ![gif](https://media.giphy.com/media/13xxoHrXk4Rrdm/giphy.gif)
+# Hi, I'm _Anna!_ ![gif](https://media.giphy.com/media/13xxoHrXk4Rrdm/giphy.gif)
 
 >👾 Web Development Student 👾
 
