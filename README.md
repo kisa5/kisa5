@@ -11,4 +11,4 @@ I really do love my job but because I'm always craving new challenges I ended up
 - watching anime
 - traveling
 
-![gif2](https://media.giphy.com/media/3o7qE8TcxvLxDGPBmM/giphy.gif)
+![gif2](https://media.giphy.com/media/abt3O3BEwR6wg/giphy.gif)
